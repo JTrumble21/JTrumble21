@@ -1,7 +1,7 @@
-- 👋 Hi, I’m jessi Oostrom (Trumble)
+- 👋 Hi, I’m Jessi Oostrom (Trumble)
 - 👀 I’m interested in ... art, photography, music, travel, school
 - 🌱 I’m currently learning ... Web development
-- 📫 How to reach me ... jessitrumble@gmail.com
+- 📫 How to reach me ... jessi.oostrom@triosstudent.com OR jessitrumble@gmail.com
 - 😄 Pronouns: ... she/her
 - ⚡ Fun fact: ... This is my 4th college diploma program. I have successfully completed Paralegal, Law Clerk and Business Management
 
